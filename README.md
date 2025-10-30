@@ -1,2 +1,0 @@
-# Lunoware.gg
-Lunoware.gg
